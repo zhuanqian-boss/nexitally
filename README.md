@@ -1,7 +1,8 @@
 # Nexitally 奶昔机场官网地址入口
 
-**最新地址：**  
-[nexitcore.com](https://naixinternet.com/signupbyemail.aspx?MemberCode=)
+最新地址：[nexitcore.com](https://naixinternet.com/signupbyemail.aspx?MemberCode=34d1e48f15ea48b5b4b152cd5a8734cd20251231091921)
+
+备用地址：[naiixi.com](https://naiixi.com/signupbyemail.aspx?MemberCode=34d1e48f15ea48b5b4b152cd5a8734cd20251231091921)
 
 ---
 
