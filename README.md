@@ -1,4 +1,4 @@
-# Nexitally 奶昔机场官方入口
+# Nexitally 奶昔机场官网地址入口
 
 **最新地址：**  
 [nexitcore.com](https://naixinternet.com/signupbyemail.aspx?MemberCode=)
